@@ -1,6 +1,6 @@
 <div align="center">
     
-![Cyber Bee - Azul (claro)  Convertido  (1)](https://github.com/user-attachments/assets/d019a727-82c7-4f3b-b3a7-d5abc2017a4d)
+![Cyber Bee - Azul (claro)  Convertido  (1)](https://github.com/user-attachments/assets/88e35998-c056-4c02-aa91-118b869fa959)
 
 </div>
 
